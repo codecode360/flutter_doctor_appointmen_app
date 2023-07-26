@@ -48,9 +48,9 @@ Follow the uploading steps
 
 𝐒𝐭𝐢𝐥𝐥 𝐍𝐞𝐞𝐝 𝐚 𝐒𝐮𝐩𝐩𝐨𝐫𝐭 𝐟𝐨𝐫 𝐅𝐥𝐮𝐭𝐭𝐞𝐫 𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐞𝐦𝐞𝐧𝐭 ??
 
-- [Hire Me](https://www.fiverr.com/kalpeshkhandla?up_rollout=true)
-- [Drop me your message](https://www.linkedin.com/in/kalpesh-khandla-11693541/)
-- [Drop me your message](https://twitter.com/khandla20)
+- [Hire Me](sajibsaj66@gmail.com)
+- [Drop me your message](https://www.linkedin.com/in/shamsul-alam-sajib-662460201/)
+
 
 
 𝐄𝐦𝐚𝐢𝐥 : 𝐤𝐡𝐚𝐧𝐝𝐥𝐚𝐤𝐚𝐥𝐩𝐞𝐬𝐡𝟐𝟎@𝐠𝐦𝐚𝐢𝐥.𝐜𝐨𝐦
